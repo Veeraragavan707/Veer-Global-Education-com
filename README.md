@@ -1,1 +1,1 @@
-# Veer-Global-Education-com
+# Veer-Global-Education.com
